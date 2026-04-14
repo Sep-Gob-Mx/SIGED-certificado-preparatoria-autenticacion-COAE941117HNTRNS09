@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-COAE941117HNTRNS09
+COAE941117HNTRNS09
